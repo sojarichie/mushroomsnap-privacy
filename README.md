@@ -1,0 +1,1 @@
+# mushroomsnap-privacy
